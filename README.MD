@@ -1,0 +1,1 @@
+Just for r404r-NIP-05-verification
